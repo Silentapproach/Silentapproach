@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Silentapproach
+- 👀 I’m absolutely in love with farming / farming technology, space exploration, rocketry, robots, and I could probably continue.
+- 🌱 I’m currently learning the basics of web development. 
+- 📫 How to reach me: eMail
